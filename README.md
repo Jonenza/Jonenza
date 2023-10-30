@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jonenza
 - 👀 I’m interested in coding,gaming and IT
 - 🌱 I’m currently learning python and java
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me https://t.me/pastaconilragu - https://twitter.com/AgenteJonenza - https://discord.com/users/503540375743627266 -
